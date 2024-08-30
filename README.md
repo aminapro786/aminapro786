@@ -10,7 +10,7 @@ I'm new to AI but super excited to learn and grow in this field! Here's a bit ab
 
 ## 🚀 My Goals
 
-- 🔍 Learn the basics of AI.
+- 🔍 AI Specialist.
 - 🌟 Work on cool AI projects.
 - 📈 Build a career in AI.
 
